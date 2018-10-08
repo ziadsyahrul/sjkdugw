@@ -1,1 +1,3 @@
 # sjkdugw
+
+belajarlah sampai pintar
